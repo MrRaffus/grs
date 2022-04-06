@@ -1,8 +1,25 @@
-# grs
+dqwdqw
+dqwdwq
+d
+wq
+dwq
+dqw
+d
+qw
+dwq
+d
+qwd
+qwd
+qwd
+qw
+dùqw
+dqw
 
-
-
-
-
-
-Lobby: 
+dqw
+dwq
+d
+wqdqw
+d
+wq
+d
+wq
